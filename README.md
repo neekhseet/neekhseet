@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=JetBrains+Mono&size=13&pause=1000&color=F7F7F7&multiline=true&width=435&lines=hi+there.+im+alex.+just+see+plus+plus+enjoyer+(for+now);trying+to+be+better+than+yesterday.+glhf.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=JetBrains+Mono&size=13&pause=1000&color=F7F7F7&background=000000&width=435&lines=hi+there.+im+alex.+see+plus+plus+enjoyer+(for+now).;trying+to+be+better+than+yesterday.+glhf+%3C3)](https://git.io/typing-svg)
